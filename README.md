@@ -1,4 +1,4 @@
-# County of Nordhausen
+# Climate Change Adaptation in County of Nordhausen
 
 ## Overview
 
